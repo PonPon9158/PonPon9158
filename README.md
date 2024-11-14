@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PonPon9158
-- 👀 I’m interested in ... game dev🎮 and deep learning😮
+- 👀 I’m interested in ... game dev🎮 and deep learning🤯
 - 🌱 I’m currently learning ... java, js, and more😭
 - 💞️ I’m looking to collaborate on ... school projects atm
 - 📫 How to reach me ... do not
